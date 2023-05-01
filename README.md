@@ -16,7 +16,7 @@
 >Из животных мне нравятся **котики** , __утко-черепашки__ и **капибары**. Но фотографий к**а**п**и**б**а**р не будет, потому что они ослепят ваши глаза своей **с**ног**шиб**атеЛьНоСтЬю. 
 >
 >
->![turtle-duck](https://yt3.ggpht.com/ytc/AKedOLTJ4HXLuHfIevkLrFBMFVE_DdmMK56exXQ6mgORWw=s900-c-k-c0x00ffffff-no-rj)
+>![turtle-duck](https://phonoteka.org/uploads/posts/2021-05/1622112387_24-phonoteka_org-p-cherepashka-milii-art-krasivo-29.jpg)
 >
 >---
 >
